@@ -1,0 +1,1 @@
+I request you respectable co-coders(I coined this term on purpose) to help me resolve issues issues and create meaningful pull-requests. I expect you guys at Github tostay polite and also to expect polite behaviour in return. Tha
